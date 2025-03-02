@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mike7LJ
 - 👀 I’m interested in Cyber / Security / Justice
-- 🌱 I’m currently learning Cybersecurity at Southampton Uni
+- 🌱 I’m currently learning Cybersecurity at Southampton Uni, UK
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me .. be creative.
 - 😄 Pronouns: he / him.
