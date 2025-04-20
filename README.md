@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mike LJ
+- 👋 Hi, I’m @Mike  L J
 - 👀 I’m interested in Cyber / Security / Justice
 - 🌱 I’m currently learning Cybersecurity at Southampton Solent Uni, UK
 - 💞️ I’m looking to collaborate on various projects
