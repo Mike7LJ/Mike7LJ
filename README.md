@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cyber / Security / Justice
 - 🌱 I’m currently learning Cybersecurity at Southampton Solent Uni, UK
 - 💞️ I’m looking to collaborate on various projects
-- 📫 How to reach me .. be creative.
+- 📫 How to reach me .. be creative..
 - 😄 Pronouns: he / him.
 - ⚡ Fun fact: .. travelled a bit, trying out new things, always learning, looking forward to some new challenges, enjoying life!
 
